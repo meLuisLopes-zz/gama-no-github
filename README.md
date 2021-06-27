@@ -1,0 +1,1 @@
+O curso de Git está muito bom. Conhecia apenas os comando básico. Já tenho muito o que praticar.
